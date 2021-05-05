@@ -1,1 +1,0 @@
-# ads_rdw_2021_macaco_dourado
